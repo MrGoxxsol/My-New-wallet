@@ -23,7 +23,7 @@ He didn’t need a Bloomberg terminal.
 He didn’t need insider tips.
 He didn’t need a motivational podcast at 5 a.m.
 
-He had a wheel of destiny and tiny paws of steel.<img width="793" height="791" alt="Screenshot 2026-02-25 at 12 01 20 AM" src="https://github.com/user-attachments/assets/c24b6428-4eca-478f-9042-afe8169923bb" />
+He had a wheel of destiny and tiny paws of steel
 
 
 Because Mr. Goxx reminds us of something powerful:
@@ -52,3 +52,5 @@ Be disciplined.
 Be unstoppable.
 
 Be like Mr. Goxx
+
+.<img width="793" height="791" alt="Screenshot 2026-02-25 at 12 01 20 AM" src="https://github.com/user-attachments/assets/c24b6428-4eca-478f-9042-afe8169923bb" />
